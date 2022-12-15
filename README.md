@@ -1,4 +1,4 @@
-- I’m @Azivation
+- I’m Percy
 - I have many ADHD Fueled interests.
 - I am learning way too many things at once.
 - This is just for my "Portfolio" I guess. 
